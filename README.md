@@ -15,3 +15,4 @@ Codepenn
 My favorite part of this week is being able to see my code in action / working. I love Codepenn. Thank you Melissa Timmons for being an inspiration & mentor file:///home/code13/Downloads/IMG_5236.jpg
 twitter logo
 DISCUSS
+Blog week 5
